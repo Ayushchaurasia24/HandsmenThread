@@ -1,3 +1,3 @@
 Link for the project demo video :
 
-https://drive.google.com/file/d/16VXnIz8zW4FWraHHO-EJ_fMKdv-VDOl5/view?usp=sharing
+https://drive.google.com/file/d/1SWb0XxaxVzICDDUr15QeBjp5c3VwQcdD/view?usp=sharing
